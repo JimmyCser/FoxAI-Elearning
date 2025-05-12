@@ -17,3 +17,4 @@
 - Chia sẻ Video: Bạn có thể thảo luận trực tiếp trên nền tảng Fireflies về các video cuộc họp, giúp nhóm dễ dàng chia sẻ và phân tích các phần cụ thể của cuộc họp.
 
 => Chi tiết xem tại video sau: https://tinyurl.com/y6s2azcw
+Vũ Minh Phúc ( báo cáo học tập ): https://www.loom.com/share/6cc3aacc82ad44f4854f3e99deaaf320?sid=6ca3fe33-5bb2-4f74-85ad-e5b65cf89ac1
